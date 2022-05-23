@@ -8,7 +8,7 @@
 
 ### About Me
 - I work full time @ Twitter as a Logistics coordinator in our engineering department
-- Attend Georgia Tech full stack bootcamp
+- I Attend Georgia Tech full stack bootcamp
 - Looking to network and collaborate with other developers
 - Other facts; I like working out, riding Jeeps & living life 
 - Contact me with any questions or inquiries: earladams2000@gmail.com 
